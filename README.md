@@ -1,2 +1,5 @@
 ![Uploading Screenshot (31).png…]()
 ![Screenshot (30)](https://github.com/tanavishali/paper-rock-game/assets/110098816/06a57273-768d-4be3-abc1-4f5d58ab359c)
+![Screenshot (63)](https://github.com/tanavishali/paper-rock-game/assets/110098816/df27cfe1-2d9d-4dbc-aa6c-0aa0bdf27e0c)
+![Screenshot (62)](https://github.com/tanavishali/paper-rock-game/assets/110098816/8f83a1ad-8beb-4c61-8bae-04a61c9c26c5)
+![Screenshot (62)](https://github.com/tanavishali/paper-rock-game/assets/110098816/a326545e-5354-4f03-a83b-404a46b8ad35)
